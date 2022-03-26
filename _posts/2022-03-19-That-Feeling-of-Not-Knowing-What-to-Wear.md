@@ -1,0 +1,12 @@
+---
+title: "That Feeling of Not Knowing What to Wear"
+date: 2022-03-28
+---
+
+We all have those days where we stare into our closets and cannot decide what to wear. Sometimes, it's due to the occasion -- an event with a non-existent or indecipherable dress code, the first day at a new job, meeting someone important for the first time and wanting to make a good impression. Sometimes, it's entirely internal, that feeling of being unable to articulate the mood or feeling we wish to outwardly express with what we wear, or the feeling that what is before you in the closet just cannot hit the right mark. Or perhaps a combination of the two.
+
+While I have these days from time to time, two prolonged occasions where I repeatedly struggled with the decision of what to wear stand out in my mind. Times when the challenge was not an occasion or a mood that I could not grapple with, but rather a complete undoing of the order in my life that rendered my previous experience utterly irrelevant. A situation where past is so clearly of no use, and future so foreign that it has to be greeted in a cautious, guarded manner.
+
+Familiar to many will be the start of the Covid-19 Pandemic in early 2020, when our routines were substantially disrupted and social interactions moved from offices and pubs to FaceTime and Zoom calls. However, I actually feel I navigated this transition fairly well, neither continuing to comically dress like nothing had happened nor devolving into lounging around in sweats all day. I said an abrupt goodbye to my roughly thrice weekly outfit featuring a tailored jacket and dress trousers (sadly, these lovely items are still mostly gathering dust in my closet, but after a few months I had made peace with this shift), and mostly wore button down shirts and dressier creased (though still machine washable) chinos with a sweater when necessary (i.e. every day during the long English winter). Over time, I probably evolved a bit more casual on the bottoms (in particular I was eyeing some five-pocket trousers in more interesting materials), and while I still had days when I longed for that unmistakeable feeling of cinching up a necktie into the crevice of my shirt collar and sliding into a jacket, I was happy with what I was wearing.
+
+Why the past tense with coming to grips with pandemic dress? Because in the spring of 2021, my wife and I had our lives changed forever with the arrival of a daughter. Where the pandemic was a mild shift in direction, the disruption of having a baby so thoroughly threw me for a loop
