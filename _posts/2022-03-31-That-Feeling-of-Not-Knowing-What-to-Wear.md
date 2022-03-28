@@ -1,6 +1,6 @@
 ---
 title: "That Feeling of Not Knowing What to Wear"
-date: 2022-03-28
+date: 2022-03-31
 ---
 
 We all have those days where we stare into our closets and cannot decide what to wear. Sometimes, it's due to the occasion -- an event with a non-existent or indecipherable dress code, the first day at a new job, meeting someone important for the first time and wanting to make a good impression. Sometimes, it's entirely internal, that feeling of being unable to articulate the mood or feeling we wish to outwardly express with what we wear, or the feeling that what is before you in the closet just cannot hit the right mark. Or perhaps a combination of the two.
